@@ -1,2 +1,1 @@
-# sathyanaravind.github.io
-Aravind's Website
+# Aravind S
